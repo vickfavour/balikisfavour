@@ -1,4 +1,4 @@
-# 📱 Rappo Data Giveaway — Win Free Data!
+# 📱 MONEYMATTERS Data Giveaway — Win Free Data!
 
 Welcome to the **Rappo Data Giveaway** — win free MTN, Airtel, GLO & 9mobile data bundles!
 
@@ -9,7 +9,7 @@ Welcome to the **Rappo Data Giveaway** — win free MTN, Airtel, GLO & 9mobile d
 
 ## 🔗 Enter Now
 
-**Visit:** [vickfavour.github.io/rappo-giveaway](https://vickfavour.github.io/rappo-giveaway)
+**Visit:** [vickfavour.github.io/moneymatters](https://vickfavour.github.io/moneymatters)
 
 ---
 
